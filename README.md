@@ -48,3 +48,12 @@ http://seatboost.com/
 ### DBS Altitude
 https://www.dbs.com.sg/personal/cards/credit-cards/dbs-altitude-cards
 
+## Hotel Conversion 
+
+https://www.accorhotels.com/hotel-cms/gb/partners/accor-partners-920.shtml
+
+## PPS Value Conversion 
+
+http://www.sqtalk.com/forum/showthread.php?t=1109
+
+
