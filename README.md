@@ -7,14 +7,18 @@ travel hacking tips and notes
 https://www.krisflyerspree.com/
 https://www.krisflyerspree.com/top/special-offers
 
-##Air Fare Search 
+## Air Fare Search 
 
-###SkyScanner
+### SkyScanner
+Choose cheapest month for YOLO
+
 https://www.skyscanner.com.sg/
 
-###MATRIX ITA 
+### MATRIX ITA 
 https://matrix.itasoftware.com/
 
-###DBS Altitude
+
+## Credit Card 
+### DBS Altitude
 https://www.dbs.com.sg/personal/cards/credit-cards/dbs-altitude-cards
 
