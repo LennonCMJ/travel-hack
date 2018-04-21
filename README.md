@@ -37,11 +37,24 @@ https://matrix.itasoftware.com/
 
 https://skiplagged.com/
 
+### Momondo
+https://www.momondo.com
+
+### Expert Flyer
+https://www.wheretocredit.com/
+
+
 
 ## Ticket Bidding 
 
 http://seatboost.com/
 
+## Sam Chui
+### Qantas
+https://samchui.com/2018/04/20/smart-travel-find-cheapest-qantas-business-class-fare/
+
+### Luftansa
+https://samchui.com/2018/04/20/amazing-cheap-lufthansa-swiss-first-class-fare/#.WttLQMiFOUl
 
 
 ## Credit Card 
